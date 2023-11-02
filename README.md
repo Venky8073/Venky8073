@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **venkateshgangoji@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qrQ-AHC3vvonauuhiTQTTYVvwYIGkMJZ/view](https://drive.google.com/file/d/1qrQ-AHC3vvonauuhiTQTTYVvwYIGkMJZ/view)
+- 📄 resume [https://drive.google.com/file/d/1qrQ-AHC3vvonauuhiTQTTYVvwYIGkMJZ/view](https://drive.google.com/file/d/1qrQ-AHC3vvonauuhiTQTTYVvwYIGkMJZ/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
